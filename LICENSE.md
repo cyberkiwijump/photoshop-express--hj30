@@ -1,4 +1,4 @@
-# 
+# new Lightroom for macOS Module | audio-sync + auto-enhance offers the most advanced Lightroom for macOS module, with audio-sync and auto-enhance. Ideal for macOS professionals.
 
 
 
